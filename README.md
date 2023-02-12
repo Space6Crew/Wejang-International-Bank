@@ -1,2 +1,2 @@
 # Wejang-International-Bank
-Wejang International Bank onBank of America Interational Partners. 
+Wejang International Bank Partners with Bank of America Interational Partners. 
